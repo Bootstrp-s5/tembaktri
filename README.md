@@ -1,0 +1,2 @@
+# tembaktri
+JANGAN MARUK KNTL
